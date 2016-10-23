@@ -1,1 +1,2 @@
 # Scraping_Dataa
+<strong>Need a Halloween costume?  Get this OUTRAGEOUS SHIRT NOW! </strong><br /><span style="color: #0b5394;"><strong><em>** Safe &amp; Secure Checkout</em></strong></span><br /><span style="color: #0b5394;"><strong><em>** VERY High Quality Tees</em></strong></span><br /><b>Limited Edition</b><span> and </span><b>Only Available for few days</b><span>.</span><br /><strong>Buy together with Family/Friends and SAVE! All Shirts are Free Shipping</strong><br /><strong>Sale may end early so get yours now!</strong>
